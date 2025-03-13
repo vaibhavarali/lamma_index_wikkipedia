@@ -1,0 +1,1 @@
+# lamma_index_wikkipedia
